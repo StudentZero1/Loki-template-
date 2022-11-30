@@ -8,3 +8,4 @@ Probably nobody will see this lol anyway the list of things are as follows
 -pngs of tva etc 
 Some instructions 
 Have fun making stuff I'll be uploading my finished prop 
+soon 
