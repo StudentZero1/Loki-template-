@@ -9,3 +9,4 @@ Probably nobody will see this lol anyway the list of things are as follows
 Some instructions 
 Have fun making stuff I'll be uploading my finished prop 
 soon 
+youll find everything here 
